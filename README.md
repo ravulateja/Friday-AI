@@ -1,1 +1,1 @@
-# Friday-AI
+# Friday-A
